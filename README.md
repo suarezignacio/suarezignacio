@@ -1,6 +1,6 @@
 - 👋 Hi there! 
 - 💞️ I’m looking to help or participate in any project. meet people who love technology
-- 📫 suarezicontacto@gmail.com
+- 📫 Contact me suarezicontacto@gmail.com
 
 
 <!---
